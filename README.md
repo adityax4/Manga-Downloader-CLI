@@ -3,7 +3,7 @@
 ## Manga Website: 
 - https://m.manganelo.com/wwww
 
-### Some famous Manga Links:
+### Some popular Manga Links:
 - ONE PIECE : https://chapmanganelo.com/manga-aa88620
 - NARUTO : https://chapmanganelo.com/manga-ng89900
 
